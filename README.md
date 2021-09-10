@@ -5,7 +5,7 @@
 <p align="center">
     @Isabella ᴹˢ#3555
 <p align="center">
-diseñadora <3
+<3
 <p align="center">
 </p>
 <p align="center">
