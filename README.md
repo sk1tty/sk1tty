@@ -26,10 +26,10 @@
 
 ## Sobre mí :)
 
-🌸 -  Hola, soy @sk1tty
-🌷 -  Me gustan los gatos...
-🌱 -  Estoy en la universidad estudiando diseño de modas
-🐱 -  Tengo un server de gatitos [Discord](https://discord.gg/mishisquad) <3
+-🌸 Hola, soy @sk1tty
+-🌷 Me gustan los gatos...
+-🌱 Estoy en la universidad estudiando diseño de modas
+-🐱 Tengo un server de gatitos [Discord](https://discord.gg/mishisquad) <3
 
 ## Lenguajes
 
